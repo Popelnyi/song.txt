@@ -11,5 +11,3 @@ The young man struggles on and on he's known
 A vow unto his own
 That never from this day
 His will they'll take away
-
-Читать на сайте: https://text-pesni.com/lreo
